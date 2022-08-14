@@ -6,7 +6,7 @@ I also have a keen interest in applied Machine/Deep Learning, specifically with 
 
 I am a B.E (Hons) Computer Science and Msc. (Hons) Economics graduate from BITS Pilani KK Birla Goa Campus.
 
-Please contact me to discuss for any relevant opportunities or any mutual areas of interest.
+Please contact me to discuss any relevant opportunities or mutual areas of interest.
 
 Email : keskarshreesh@gmail.com                                                                                                                                     
 
