@@ -9,5 +9,5 @@ I am a B.E (Hons) Computer Science and Msc. (Hons) Economics graduate from BITS 
 Please contact me to discuss any relevant opportunities or mutual areas of interest.
 
 Email : keskarshreesh@gmail.com <br />
-Phone: +918010153917, +917588275770 (subject to change) <br />
+Phone: +1 732-522-6176 <br />
 <a href="https://drive.google.com/file/d/1m-E9_s_vr7D9Dwp5CD53vjyBdTZWks8p/view?usp=sharing" target="_blank" rel="noopener noreferrer">Resume</a>
